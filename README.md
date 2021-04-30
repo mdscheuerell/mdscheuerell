@@ -1,4 +1,4 @@
-## 👋 Hi there!
+## 👋 Hey there!
 
 My name is Mark and I'm the Assistant Unit Leader for Fisheries in the [U.S. Geological Survey Washington Cooperative Fish and Wildlife Research Unit](https://depts.washington.edu/wacfwru/). I'm also an associate professor in the [School of Aquatic and Fishery Sciences](https://fish.uw.edu) at the University of Washington.
 
